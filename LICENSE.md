@@ -1,4 +1,4 @@
-
+elite dig deeper for brainrots Script is the best dig deeper for brainrots Script, featuring one-hit kill and god mode. Safe and powerful for all
 
 
 
